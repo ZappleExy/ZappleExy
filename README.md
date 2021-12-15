@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZappleExy
-- 👀 I’m interested in a lot of stuff
+- 👀 I’m interested in a lot of things
 - 🌱 I’m currently learning film
 - 💞️ I’m looking to collaborate on Stuff
 - 📫 How to reach me in discord
